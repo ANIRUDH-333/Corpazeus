@@ -31,7 +31,6 @@
   * <a href="https://github.com/AadharshAadhithya">Github</a>
  
 
-
   * <a href="https://www.linkedin.com/in/aadharsh-aadhithya-9a6982149/">Linkedin</a>
  
 
